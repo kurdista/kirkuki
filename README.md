@@ -1,0 +1,4 @@
+kirkuki
+=======
+
+zor zor dasha
